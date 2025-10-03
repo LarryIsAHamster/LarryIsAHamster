@@ -2,7 +2,7 @@
 - 👀 I’m interested in Hamsters
 - 🌱 I’m currently learning Hamster
 - 💞️ I’m looking to collaborate on Hamster
-- 📫 How to reach me Larry.cam/Hamster
+- 📫 How to reach me Larry.com/Hamster
 - 😄 Pronouns: Hamster
 - ⚡ Fun fact: I'm actually not a Hamster.
 
